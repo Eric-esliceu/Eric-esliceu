@@ -4,7 +4,7 @@
 - 🌱 I’m currently learning about microsystems
 - 💞️ I’m looking to collaborate on Apple
 - 📫 How to reach me eegiraldog@esliceu.net
-- 😄 Pronouns: Leric
+- 😄 Pronouns: Leri
 - ⚡ Fun fact: 
 - Estebanco esta ocupado por un padre y un hijo.
 <!---
